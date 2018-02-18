@@ -1,1 +1,1 @@
-# hacksnotdrugs.github.io
+# hacksnotdrugs
